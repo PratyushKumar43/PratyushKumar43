@@ -3,7 +3,7 @@
 
 ---
 
-Let me know if you need more adjustments! 😊📫 How to reach me:<br>      Email: pratyushkumaressential@gmail.com<br>      LinkedIn: https://www.linkedin.com/in/p-pratyush-kumar-behera/ <br>      GitHub: https://github.com/PratyushKumar43 <br>😄 Pronouns: He/Him<br>⚡ Fun fact: I enjoy working on FLUX and LORA Models.
+Let me know if you need more adjustments! 😊📫 How to reach me:<br>      Email: pratyushkumaressential@gmail.com<br>      LinkedIn: https://www.linkedin.com/in/p-pratyush-kumar-behera/ <br>      GitHub: https://github.com/PratyushKumar43 <br>😄 Pronouns: He/Him<br>
 
 
 ## 🌐 Socials:
